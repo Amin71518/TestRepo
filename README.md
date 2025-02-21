@@ -5,4 +5,5 @@
 
 Следите за обновлениями и новыми играми в наших соцсетях:
 
+![image](https://github.com/user-attachments/assets/0fe08685-8aed-44f1-a55c-a45683e559b1)
 https://t.me/ArcadeZon
